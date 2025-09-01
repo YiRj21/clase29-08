@@ -47,7 +47,8 @@ Somos estudiantes de Ingenieria Biomedica PUCP-UPCH, del grupo PIB5 del curso "P
    **¿POR QUÉ INGENIERÍA BIOMÉDICA?** Porque vi un documental sobre la ingeniería biomédica y me atrajo.
    
 **4. Jhair Radmel Salazar Requejo**
-      
+     ![Imagen de WhatsApp 2025-09-01 a las 08 29 34_b9299fe7](https://github.com/user-attachments/assets/57e8c945-9310-45d3-b8aa-c2b98ed8666c)
+ 
    **EDAD:**  17 años
    
    **PASATIEMPO:**
