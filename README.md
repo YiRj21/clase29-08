@@ -48,12 +48,14 @@ Somos estudiantes de Ingenieria Biomedica PUCP-UPCH, del grupo PIB5 del curso "P
    
 **4. Jhair Radmel Salazar Requejo**
       
-   **EDAD:**  años
+   **EDAD:**  17 años
    
    **PASATIEMPO:**
-   - M
+   - Jugar videojuegos
+   - Escuchar música
+   - Hacer deportes
    
-   **¿POR QUÉ INGENIERÍA BIOMÉDICA?** Porque 
+   **¿POR QUÉ INGENIERÍA BIOMÉDICA?** Porque siempre me gustó la tecnología, la ciencia y innovación que busquen el progreso, y esta carrera tiene todo eso enfocándolo hacia el bienestar del humano.
    
 **5. Camila Miranda Lamas Carrubba**
 
